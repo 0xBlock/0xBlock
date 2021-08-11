@@ -1,1 +1,1 @@
-### Full Stack Developer with Blockchain Technologies
+### Full Stack Blockchain Developer (DEFI, DEX, NFT)
